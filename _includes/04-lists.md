@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Freyja 🐱
+2. Loki 🐈
+  * Sin raza
+  * Negrito

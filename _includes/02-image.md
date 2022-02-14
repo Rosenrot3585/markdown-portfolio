@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+https://www.artmajeur.com/medias/hd/a/n/animalpaintings/artwork/9768892_php5tle7s.jpg
